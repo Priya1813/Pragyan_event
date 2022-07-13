@@ -1,1 +1,0 @@
-# Pragyan_event
